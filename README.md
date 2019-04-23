@@ -1,2 +1,2 @@
 Hola
-colaboradores
+colaboradore-s.
